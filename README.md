@@ -28,3 +28,4 @@ tiktok api last version mass account creator of tik tok accounts, tik tok likes,
 
 **Contact for api :** [https://t.me/elegalr1der](https://t.me/elegalr1der)
 ## telegram: @elegalr1der
+## email: elegalr1der@proton.me
